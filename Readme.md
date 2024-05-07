@@ -6,4 +6,4 @@
 
 > Video about Hasegawa in the match: https://www.youtube.com/watch?v=F61yt0KJWUw
 
-> Hasegawa's grip style is mostly forehand focus, and his backhand technique is more focus on blocking, hitting and lobbing. The author feels that this is due to historical reason where back in the 1960s and 1970s, Japanese players are mostly peholders and one of the main advantage of penhold is the forehand attack. 
+> Hasegawa's grip style is mostly forehand focus, and his backhand technique is more focus on blocking, hitting and lobbing. I feel that this is due to historical reason where back in the 1960s and 1970s, Japanese players are mostly peholders and one of the main advantage of penhold is the forehand attack. 
