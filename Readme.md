@@ -11,3 +11,8 @@
 * The reverse backhand penhold grip from **wang hao** (https://en.wikipedia.org/wiki/Wang_Hao_(table_tennis,_born_1983)
 
 > Wang uses a penhold grip. He is representative of a new wave of penhold players, having good attacking and defensive skills off both wings of the table. The greater freedom of the wrist involved in a penhold grip allows Wang Hao to generate large amounts of spin on the forehand side. 
+
+* Combining Hasegawa's grip style and wang hao's grip style
+
+> Inspired by Hasegawa and Wang Hao, I started taking an effort to create a modified index finger based grip (**MIFBG**) so that we we can combine the best part of shakehand grip and the penhold grip.
+> In The MIFBG, we still have the index finger still pointing down the center of the blade but move about 1 inch further away from it. And we use the scaphoid bone to support the base of the paddle handle and we will wrap the middle finger, the ring finger and the little finger around the handle.
