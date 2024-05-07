@@ -1,1 +1,1 @@
-A modified index finger based grip
+**A modified index finger based grip**
