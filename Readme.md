@@ -10,7 +10,9 @@
 
 * The reverse backhand penhold grip from **wang hao** (https://en.wikipedia.org/wiki/Wang_Hao_(table_tennis,_born_1983)
 
-> Wang uses a penhold grip. He is representative of a new wave of penhold players, having good attacking and defensive skills off both wings of the table. The greater freedom of the wrist involved in a penhold grip allows Wang Hao to generate large amounts of spin on the forehand side. 
+> Wang Hao uses a penhold grip. He is representative of a new wave of penhold players, having good attacking and defensive skills off both wings of the table. The greater freedom of the wrist involved in a penhold grip allows Wang Hao to generate large amounts of spin on the forehand side.
+
+> Wang Hao's Instructional: https://www.youtube.com/watch?v=mrrIDgT6TnY
 
 * Combining Hasegawa's grip style and wang hao's grip style
 
