@@ -4,4 +4,4 @@
 
 > Hasegawa was a famous exponent of heavy topspin forehand attack, combined with lob defence. He used a modified shakehands grip with the index finger pointing down the center of the blade. This made his backhand a little awkward for fast attack, so even though a shakehander his tactics were similar to the Japanese penholders with wonderful footwork.
 
-Video about Hasegawa in the match: https://www.youtube.com/watch?v=F61yt0KJWUw
+> Video about Hasegawa in the match: https://www.youtube.com/watch?v=F61yt0KJWUw
