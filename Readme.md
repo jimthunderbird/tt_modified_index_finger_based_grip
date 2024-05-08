@@ -17,7 +17,7 @@
 * Combining Hasegawa's grip style and wang hao's grip style
 
 > Inspired by Hasegawa and Wang Hao, I started taking an effort to create a modified index finger based grip (**MIFBG**) so that we can combine the best part of shakehand grip and the penhold grip.
-> In The MIFBG, we still have the index finger pointing down the center of the blade but move about 1 inch further away from it. We will then use the scaphoid bone and lunate bone to support the base of the paddle handle and we will wrap the middle finger, the ring finger and the little finger around the handle, finally, the thumb will naturally rest on the bottom right edge of the blade and handle connection area. With the helps of all 5 fingers, we can make sure that the paddle will be stable.
+> In The MIFBG, we still have the index finger pointing down the center of the blade but move about 1 inch further away from it. We will then use the scaphoid bone and lunate bone to support the base of the paddle handle and we will wrap the middle finger, the ring finger and the little finger around the handle, finally, the thumb will naturally rest on the bottom right edge of the blade and handle connection area. With the helps of all 5 fingers, we can make sure that the paddle is stable.
 
 **MIFBG Analysis**
 
