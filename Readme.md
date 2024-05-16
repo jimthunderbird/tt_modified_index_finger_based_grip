@@ -31,3 +31,8 @@
 
 
 **MIFBG as a framework and possible plugins**
+
+* Plugin: Qiu Dang's reverse penhold backhand simulation
+
+Best of Qiu Dang
+https://www.youtube.com/watch?v=XfrbVPe0xzU
