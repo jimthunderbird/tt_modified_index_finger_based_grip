@@ -36,3 +36,7 @@
 
 Best of Qiu Dang
 https://www.youtube.com/watch?v=XfrbVPe0xzU
+
+* Plugin: Felix Lebrun's reverse penhold backhand simulation
+https://www.youtube.com/watch?v=CroLHj9jzoE
+
